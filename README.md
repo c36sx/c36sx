@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @c36sx
+- 👀 I’m interested in Social Media Botting
+- 🌱 I’m currently learning Python & Web Development
+- 📫 How to reach me 9gno#9433
